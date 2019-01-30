@@ -7,5 +7,5 @@
 4. blahblah... to be continued
 5. maybe Vlog?
 ---
-[ttlovesgg's blog](ttlovesgg.github.io)  
+[ttlovesgg's blog](http://ttlovesgg.github.io)  
 **bgm 慢慢喜欢你，两个人不等于我们，作曲家....**
